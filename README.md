@@ -1,0 +1,1 @@
+# spatial_variation_copper_imidacloprid
